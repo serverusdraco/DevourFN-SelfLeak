@@ -5,3 +5,5 @@ This spoofer mostly works for a lot of famous well known games..
 Enjoy - Devour services!
 
 Love y'all hope it works😘
+Also a list of what games it works on! 
+MINECRAFT, FORTNITE, APEX, PROJECT NOVA, PROJECT ERA, WARZONE - 1.0 - 2.0 - , MW - 1.0 - 2.0 
